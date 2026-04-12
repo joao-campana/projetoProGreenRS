@@ -1,2 +1,0 @@
-# projetoProGreenRS
-Pro-Green
